@@ -1,3 +1,3 @@
 # Minecraft Server Worlds
 
-# These are the preivious worlds from my minecraft server for download
+# Drive Link: https://drive.google.com/drive/folders/17PkmVk8VRzeHphFWYDKikTI4NrdQy2md?usp=sharing
